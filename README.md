@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **adityaedu45@gmail.com**
 
-- 📄 Know about my experiences https://drive.google.com/file/d/1GXqO3eVYw9INJ4mCh50ZwZb5Xv45vDAL/view?usp=drive_link 
+- 📄 Know about my experiences https://drive.google.com/file/d/1HvAEf_IdLDiI3f7nJ7_wbr3AG6TTOTQb/view?usp=drive_link
 
 - ⚡ Fun fact **I am a core gamer!**
 
