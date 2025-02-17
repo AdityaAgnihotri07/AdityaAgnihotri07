@@ -9,7 +9,7 @@
 
 - 🔭 I’m currently working on **Soil Analysis And Crop Recommendation system**
 
-- 🌱 I’m currently **Preparing For Gate**
+- 🌱 I’m currently **Focousing on Software Testing**
   
 - 💬 Ask me about **Software projects, front end development, software testing**
 
